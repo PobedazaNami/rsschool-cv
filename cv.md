@@ -5,8 +5,14 @@
 
 
 **Телефон**: +38 099 0352192
+
+
 **E-mail**: grisanesa@gmail.com
+
+
 **Telegram**: @reeziat
+
+
 
 
 
