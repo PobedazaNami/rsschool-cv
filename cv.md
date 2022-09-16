@@ -1,7 +1,10 @@
 # Олександр Незять
 ## Junior Frontend Developer
 
-#### Contacts  **Телефон**: +38 099 0352192  **E-mail**: grisanesa@gmail.com  **Telegram**: @reeziat
+#### Contacts  
+**Телефон**: +38 099 0352192  
+**E-mail**: grisanesa@gmail.com  
+**Telegram**: @reeziat
 
 
 
