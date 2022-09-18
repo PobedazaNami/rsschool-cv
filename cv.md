@@ -48,4 +48,4 @@ Bogdan Stashchuk
 
 
 #### Language:
-* Ukrainian - Intermediate 
+* Ukrainian - Intermediate  
